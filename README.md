@@ -1,1 +1,1 @@
-Zaloila jsem si tento repozitáø kvùli pøedmìtu Nástroje internetu.
+Zaloila jsem si tento repozitár kvùli predmìtu Nástroje internetu.
